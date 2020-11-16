@@ -2,4 +2,4 @@
 
 
 ## Boceto :pencil2:
-![Boceto](https://imgur.com/a/AJdgDIN)
+![Boceto](https://i.imgur.com/6BB94kj.jpg)
